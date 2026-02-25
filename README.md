@@ -5,3 +5,7 @@
 ASDF
 DFGJ
 DRFHJ
+edward
+cristiano the goat
+kaka the player
+4572ZAMA
