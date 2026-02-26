@@ -9,3 +9,5 @@ edward
 cristiano the goat
 kaka the player
 4572ZAMA
+never lose hope
+be smart
