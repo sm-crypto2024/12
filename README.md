@@ -11,3 +11,4 @@ kaka the player
 4572ZAMA
 never lose hope
 be smart
+make it easy
