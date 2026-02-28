@@ -13,3 +13,4 @@ never lose hope
 be smart
 make it easy
 do it asap
+khameni is not dead
