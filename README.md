@@ -14,3 +14,4 @@ be smart
 make it easy
 do it asap
 khameni is not dead
+arsenal win today
